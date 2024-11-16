@@ -1,2 +1,3 @@
-# App-Dev
-My first repository
+My Favorite Anime All time 💕
+-------------------------------
+Anime Series: GINTAMA
