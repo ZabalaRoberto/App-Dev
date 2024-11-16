@@ -13,7 +13,7 @@ Anime Series: GINTAMA
 
 ----------------------------
 
- ### Anime:
+ ### Gintama
 
 > Season 1-5
 > Benizakura Movie
@@ -46,7 +46,7 @@ Here are the things that I really like the most, in bullet points:
 
 - DIALOGUE. Nothing beats Gintama when it comes to dialogue. Even Sorachi admits that it’s one of the aspects that he focuses on. This sounds cheesy but I can’t count the moments wherein Gintama’s dialogues have saved me or made me feel better. Dialogue is what sets it apart from the other shounen titles that I’ve read.
 
-There are a lot of series out there that can keep you hyped up, but this manga will make you love life. It’s not a zero to hero story. This is about Gintoki’s life after his prime. You guys know how much of a Sakura fan I am, but after reading Gintama, Gintoki just became my favorite fictional character of all time. To anyone who wants to give Gintama a chance, just make it to Chapter 520 or Episode 305. That point in the story will hurt you, and will make you understand why Gintoki is the way he is.
+- There are a lot of series out there that can keep you hyped up, but this manga will make you love life. It’s not a zero to hero story. This is about Gintoki’s life after his prime. You guys know how much of a Sakura fan I am, but after reading Gintama, Gintoki just became my favorite fictional character of all time. To anyone who wants to give Gintama a chance, just make it to Chapter 520 or Episode 305. That point in the story will hurt you, and will make you understand why Gintoki is the way he is.
 ---------------------------------
 ### MUST WATCH THIS ANIME
 ![gintama-pictures](https://github.com/user-attachments/assets/7336bad6-e5b2-48bb-a6d9-9e07b751ea1d)
